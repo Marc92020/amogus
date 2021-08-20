@@ -1,2 +1,0 @@
-# amongus
-oh yah
